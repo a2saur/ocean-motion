@@ -3,7 +3,7 @@ This repository holds materials for my BridgeUp STEM internship group 2020-2021
 
 General Links:
 
-[Exit tickets](https://forms.gle/jALJB1D83rUPRBae9)
+[Exit tickets](https://amnh.zoom.us/j/96793841514?pwd=YWVadmo2dkJodGpGV2tZVUQ4NjdHZz09)
 
 [Playlist](https://docs.google.com/spreadsheets/d/1Z_ofkUumbkC3jTDRamqOIiQ2U8qkkqgPVNC3MgjGaaw/edit?usp=sharing)
 
