@@ -6,7 +6,7 @@ General Links:
 [Exit tickets](https://docs.google.com/forms/d/19WjszbI_7ZgsB_nU0fJ44eoWzWyZPz053sKe_lpHRnI/edit)
 [Joint Notebook](https://docs.google.com/document/d/1TCnoFWPQRetHt4aTJAUQf2lx6U2gxGOXG80nlKiJv-o/edit?usp=sharing)
 
-[Playlist](https://docs.google.com/spreadsheets/d/1Z_ofkUumbkC3jTDRamqOIiQ2U8qkkqgPVNC3MgjGaaw/edit?usp=sharing)
+[Playlist](;oiuyt)
 
 Calendar 
 Date | Topic | Links / Materials
